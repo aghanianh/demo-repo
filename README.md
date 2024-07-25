@@ -1,1 +1,1 @@
-It is only for my learning purposes
+It is only for my learning purposes.
